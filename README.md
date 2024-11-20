@@ -4,4 +4,5 @@ Directions:
 1. Post your blooket username in the issues tab. Wait a little (atleast 24 hours)
 2. Once you have done that, the hack will be active, and the script will not crash!
 3. Follow me so I can see your post, otherwise it won't notify me
-
+Ssyed212
+  
